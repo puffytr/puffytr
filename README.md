@@ -4,4 +4,4 @@
 - 📫 Bana aşağıya bıraktığım yollardan ulaşabilirsiniz.
 
 - Mail: puffytr@puffytr.com
-- Discord: PuffyTR@0001
+- Discord: PuffyTR
